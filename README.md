@@ -1,1 +1,1 @@
-# devenmalla
+Presently enrolled in my 4th semester of BTech IT studies, I am deeply passionate about software development. My aim is to apply my acquired skills to address real-world challenges effectively. I maintain a steadfast commitment to continuous learning and seek opportunities to contribute to innovative tech projects. I am open to networking with like-minded professionals and exploring promising avenues within the industry.
